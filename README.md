@@ -1,1 +1,0 @@
-# omyxtech.github.io
